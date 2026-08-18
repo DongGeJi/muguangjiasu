@@ -1,6 +1,6 @@
 # 暮光加速 深度评测与独家白皮书 | 2026 晚高峰测速与优惠码
 
-> **🌐 【点击前往 暮光加速 官网直达注册】：[https://your-official-url.com/muguang](https://tizi2.twilightaff.com/#/?code=nogJwChd)**  
+> **🌐 【点击前往 暮光加速 官网直达注册】：[官网](https://tizi2.twilightaff.com/#/?code=nogJwChd)**  
 > **👉 【点击前往 懂哥机博客 查阅该机场的实时更新与独家测速看板】：https://jichangknow.com/posts/muguang.html**
 
 ---
